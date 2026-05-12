@@ -1,4 +1,4 @@
-# 
+# new VMware Fusion for macOS Addon | file-sharing + seamless-integration is the best VMware Fusion for macOS addon, featuring file-sharing and seamless-integration. Powerful,
 
 
 
